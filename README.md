@@ -1,1 +1,0 @@
-# korayyilmaz22.github.io
